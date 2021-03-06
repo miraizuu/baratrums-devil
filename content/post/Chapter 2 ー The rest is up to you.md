@@ -1,0 +1,9 @@
+---
+title: "Chapter 2 ー The rest is up to you."
+author: "Alli"
+description: ""
+tags: ["Chapter 2", "2", "Baratrum's", "devil", "manga", "anime", "shonen"]
+date: "02-03-2021"
+---
+
+<blockquote class="imgur-embed-pub" lang="en" data-id="a/umbYghD"  ><a href="//imgur.com/a/umbYghD">Baratrum&#39;s Devil- Chapter 2: The rest is up to you</a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>
